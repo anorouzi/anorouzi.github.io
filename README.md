@@ -1,6 +1,6 @@
 ## Ahmad Norouzi
 
-Fullstack software enginere
+Full Stack Software Engineer
 
 ### About
 
