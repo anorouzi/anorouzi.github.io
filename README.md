@@ -10,4 +10,4 @@ For more detail see  [my linkedin page](https://www.linkedin.com/in/ahmadnorouzi
 
 ### Contact
 
-You can contact me via linkedin or twitter at norouzi4d
+You can contact me via gmail or twitter at norouzi4d
